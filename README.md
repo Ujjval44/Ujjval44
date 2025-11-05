@@ -62,7 +62,7 @@ I enjoy solving real-world problems through code and continuously learning new t
 
 ## 🤝 Connect With Me
 
-📧 Email: **(Add your email here)**  
+📧 Email: **(ujjvalthakur444@gmail.com)**  
 💼 LinkedIn: *(Add link when created)*  
 
 > ✨ **Thanks for visiting my profile!**  
